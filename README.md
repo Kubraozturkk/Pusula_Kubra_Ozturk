@@ -1,0 +1,1 @@
+# Pusula_Kubra_Ozturk
